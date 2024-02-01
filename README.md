@@ -1,8 +1,8 @@
 [![Header](https://cdn.discordapp.com/attachments/703976157112172556/1139725235311091752/61166222_p0.png)](https://www.pixiv.net/en/artworks/61166222)
 
-**Re**za ⨯ **La**nce ━━╋━ SEAsian﹐22
+**Se**rgio ⨯ **La**nce ━━╋━ SEAsian﹐22
 
-![Trans](https://f2.toyhou.se/file/f2-toyhou-se/images/22462976_bnJBzlfCUwdl2gz.png?1623251708) ![Bi](https://f2.toyhou.se/file/f2-toyhou-se/images/22459674_bkn0ph3oiADvykk.png?1623251719) ﹒﹒ He ) They ) She
+![](https://files.catbox.moe/2nc0vi.png) ![](https://files.catbox.moe/rrk5qu.png) ﹒﹒ He ) They ) She
 
  **ENG** & ESP﹐semi-active﹐RT heavy
  
