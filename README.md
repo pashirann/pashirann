@@ -4,7 +4,7 @@
 
 ![](https://files.catbox.moe/2nc0vi.png) ![](https://files.catbox.moe/rrk5qu.png) ﹒﹒ He ) They ) She
 
- **ENG** & ESP﹐semi-active﹐RT heavy
+ **ESP** and ENG﹐semi-active
  
 NSFW + Extreme ) Dead Dove content at times
 
@@ -12,6 +12,6 @@ DNI **actual** bigots, minors, antis & overly sensitive people, otherwise I hide
 
 ***
 
-![Swirl](https://pixels.crd.co/assets/images/gallery24/37ffb81e.gif?v=b3554822) **Granblue Fantasy**﹐Resident Evil﹐Kiseki﹐Persona﹐Guilty Gear﹐**Touken Ranbu**﹐Fire Emblem﹐Atelier﹐**Tsukihime**﹐BlazBlue﹐Final Fantasy﹐Xenobalde﹐Pokémon﹐etc etc Im a little shy but I promise Im nice *smiles charmingly*
+I talk a lot about Granblue Fantasy, Tsukihime amd fighting games (mostly KOF and Tekken). I'm a little shy but I promise Im nice *smiles charmingly*
 
 ***
