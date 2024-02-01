@@ -5,7 +5,7 @@
  **ENG** & ESP﹐semi-active﹐RT heavy
 NSFW + Extreme ) Dead Dove content at times
 
-DNI **actual** bigots﹐sh/edtwt﹐minors﹐antis & overly sensitive people﹐otherwise I block freely
+DNI **actual** bigots, minors, antis & overly sensitive people, otherwise I hide freely.
 
 ***
 
